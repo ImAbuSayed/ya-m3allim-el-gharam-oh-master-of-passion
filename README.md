@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا معلم الغرام تعال هنا
+> نار الشوق في قلبي أنا
+> حبيبي خذني في هذا المساء
+> عيني بعينك وكلنا رجاء
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
